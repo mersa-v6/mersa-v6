@@ -1,5 +1,5 @@
 
-## Security Analyst | Web App PenTester | Bug Bounty Hunter 
+## Security Analyst | PenTester Tester | Bug Bounty Hunter 
 
 **Blog and WriteUps** : **[Medium](https://mersa.medium.com)**
 
