@@ -6,3 +6,6 @@
 **Youtube Channel** : **[Youtube](https://www.youtube.com/@mersa-v6)**
 
 **HackerOne Account** : **[HackerOne ](https://hackerone.com/mersa-v6)**
+
+**Telegtam Group** : **[Telegtam](https://t.me/+Zx9COdRS-fRhNDk0)**
+
