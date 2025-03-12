@@ -7,5 +7,4 @@
 
 **HackerOne Account** : **[HackerOne ](https://hackerone.com/mersa-v6)**
 
-**Telegram Group** : **[Telegram](https://t.me/+Zx9COdRS-fRhNDk0)**
 
